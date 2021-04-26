@@ -5,3 +5,7 @@ both cases for a form for exmaple if we want to make a form for adding customer 
 
 For Live Demo Visit The Link :
 http://bhupenderjangra.com/code/
+You tube  : https://www.youtube.com/channel/UCsgXXCg9c3QnRPd778OJMlA
+Instagram : https://www.instagram.com/mrbj_official/
+Skype     : live:www.bhupenderjangra
+Linkedin  : https://www.linkedin.com/in/bhupender-jangra-404b2019b/
